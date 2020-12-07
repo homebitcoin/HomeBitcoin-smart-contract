@@ -14,8 +14,7 @@ The HBTC Token will be created in order to be distributed to Homeland Community 
 
 ### How to purchase and view
 
-- You can acquire HBTC tokens by performing the activities that are in the Homeland Community Indonesia
-How to participate in GO?
+- You can acquire HBTC tokens by performing the activities that are in the Homeland Community Indonesia.
 
 
 [Access our website and click on I want to participate.](https://homelandcommunityindonesia.com/)
